@@ -1,2 +1,1 @@
-# AnnabellaYang.github.io
-Map of my favorite places
+Map of my favorite destinations in United States
